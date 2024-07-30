@@ -1,16 +1,14 @@
-## Hi there 👋
+## boa boa olha a parada ai🎱
 
-<!--
-**kauanValerio011/kauanValerio011** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+meu nome é kauan
 
-Here are some ideas to get you started:
+gosto de jogar bola ⚽
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### voce pode entra em contato comigo 📫
+
+00001104789681sp@al.educacao.sp.gov.br
+
+@kazinzx011
+
+
+![](https://media1.tenor.com/m/0U_yN5w-lKQAAAAC/victor-loud-victor-augusto.gif)
